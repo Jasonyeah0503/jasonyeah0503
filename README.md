@@ -1,3 +1,5 @@
-##Jason Yeah
+## Jason Yeah
 
-*CEO, DeSpread. unemployed by agents 🤖
+*CEO at DeSpread
+
+*unemployed by agents* 🤖
